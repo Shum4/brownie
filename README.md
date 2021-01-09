@@ -35,7 +35,7 @@ step  1: Combine 3 tablespoons softened butter, 3 tablespoons cocoa, honey, 1 te
 
 step  2: Apply onto brownies while stil warm
 
-step  3:Engoy! Or add toppings like nuts, sprinkles, chocolate or candy!
+step  3:Enjoy! Or add toppings like nuts, sprinkles, chocolate or candy!
 
 
 
